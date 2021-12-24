@@ -7,5 +7,5 @@
 **Twitter**: https://twitter.com/home
 **Email**: drprakash@ieee.org
 **LinkedIn**: https://www.linkedin.com/in/drprk/
-**Telegram handle**: @drprk
+**Telegram handle**: @doctorprk
 
