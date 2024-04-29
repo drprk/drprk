@@ -11,5 +11,5 @@
 **LinkedIn**: https://www.linkedin.com/in/drprk/
 
 
-**Telegram handle**: @drprk
+**Telegram handle**: @doctorprk
 
